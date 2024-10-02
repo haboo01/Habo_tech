@@ -1,0 +1,2 @@
+# Habo_tech
+kurdish
